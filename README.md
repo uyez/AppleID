@@ -1,9 +1,9 @@
-# 2025最新 注册美区Apple ID，美国apple id注册教学
+# 2025最新 注册美区Apple ID 方法，美国apple id注册教学
 中国注册美区Apple ID账号注册方法，操作简单，不用信用卡不用翻墙，付款方式 无
 
 ### Apple ID 注册方法：
 首先注册中国大陆Apple ID，再更改成美国 Apple ID 即可，这种方法不需要开代理，不需要美国号码和填支付方式。<br/>
-- 视频教程：https://youtu.be/JbA_-IZivbM <br/>
+- 视频教程：https://youtu.be/DuDWpFqoEgM <br/>
 - 注册地址：https://appleid.apple.com/account <br/>
 如果你不想注册也可以购买账号：https://xintaikeji.eu.org
 
